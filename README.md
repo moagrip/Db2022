@@ -3,3 +3,6 @@
 ## Detta är Labb1 för Moa Grip
 
 ### Jag tillhör grupp 4
+
+Grupp 4 består av 5 personer.  
+3 tjejor och 2 pojkisar.
