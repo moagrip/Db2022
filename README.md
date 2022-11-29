@@ -14,3 +14,4 @@ Grupp 4 består av 5 personer.
 
 > *Mikael* kommer garanterat ge oss **VG** i betyg!!!
 
+Grupp 4 är bäst, ingen protest!
