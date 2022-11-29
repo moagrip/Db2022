@@ -12,4 +12,5 @@ Grupp 4 består av 5 personer.
 4. Joni
 5. Dario
 
->Mikael kommer garanterat ge oss VG i betyg!!!
+> *Mikael* kommer garanterat ge oss VG i betyg!!!
+
